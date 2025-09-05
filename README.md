@@ -6,7 +6,7 @@
 - 👯 Collaborating on [Capa](https://capa.ph/)
 - 🤝 Looking for help on my [NBA Prediction Model](https://github.com/Zachbot168/SportsBetting)
 - 👨‍💻 Portfolio: [https://zachbotcreativity.netlify.app](https://zachbotcreativity.netlify.app)
-- 📝 Regularly writing at: [https://zachbotcreativity.netlify.app](https://zachbotcreativity.netlify.app)
+- 📝 Regularly writing at: [https://zachrlee.com](https://zachrlee.com)
 - 💬 Ask me anything!
 - 📫 Reach me at: **znl2@illinois.edu**
 - ⚡ Fun fact: I love Fortnite 🎮
